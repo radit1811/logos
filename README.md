@@ -1,1 +1,1 @@
-kalian kek kontol
+database image hyper0x :D
